@@ -1,5 +1,5 @@
 # welcome
-## its me sper2901
+## its me, alpha
 if you don't know the rules around here, **please read:**
 - don't make me mad
 - i'm kind of the alpha around here
